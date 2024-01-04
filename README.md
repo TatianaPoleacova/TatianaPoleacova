@@ -1,0 +1,11 @@
+- 👋 Hi, I’m @TatianaPoleacova.
+- 👀 I’m always willing to cooperate and very interested in forming part of a highly creative experimenters team that brings to life all your crazy ideas according to global trends in Digital-industry.
+- 🌱 I’m currently learning Progect Management.
+- 💞️ I’m looking to collaborate with companies of various sizes and orientation where I could practice my Project Management skills as an intern and thereby reach a new professional level.
+  My main goal is to contribute to the prosperity of the company and create a tight-knit team of professionals united by the common idea.
+- 📫 You can find me on LinkedIn: https://www.linkedin.com/in/tatiana-poleacova-378809209/ 
+or contact me via e-mail at rawena@mail.ru
+<!---
+TatianaPoleacova/TatianaPoleacova is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->

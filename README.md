@@ -1,4 +1,4 @@
-- 👋 Hello, I'm @TatianaPoleacova.
+- 👋 Hello, my name is Tatiana Poleacova (@TatianaPoleacova).
 - 👀 I am a person who always willing to cooperate and who is very interested in forming part of a highly creative experimenters team that brings to life all crazy ideas according to global trends in Digital-industry.
 - 🌱 I am currently learning Progect Management.
 - 💞️ I will be particularly excited to collaborate with companies of various sizes and orientation where I could practice my Project Management skills as an Intern and thereby reach a new professional level.
